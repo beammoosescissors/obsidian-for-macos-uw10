@@ -1,4 +1,4 @@
-
+Obsidian for macOS professional Workflow: reminders & collaboration offers the most advanced Obsidian for macOS workflow, with reminders and collaboration. Ideal for professionals.
 
 
 
